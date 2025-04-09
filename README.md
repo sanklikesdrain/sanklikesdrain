@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤪 Unserious.<br><br>💫 DRAIIIINNN GAAAANG.<br><br>♓ I screw around and geek out for fun.<br><br>❗ Starting from scratch cuz old acc got nuked.
+I screw around and geek out for fun.<br><br>❗ Starting from scratch cuz old acc got nuked.
 
 
 ## 🌐 Socials:
