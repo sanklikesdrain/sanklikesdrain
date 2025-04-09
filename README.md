@@ -1,6 +1,7 @@
 # 💫 About Me:
 I find memory leaks funny as fuck.<br><br>scratch cards aint shit + fuck python
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mgdrvn32lykwy5obe2lc76nuey&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31mgdrvn32lykwy5obe2lc76nuey&redirect=true)
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/syatkrit) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/sanklikesdrain) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:uisatkrit@gmail.com) 
@@ -19,4 +20,3 @@ I find memory leaks funny as fuck.<br><br>scratch cards aint shit + fuck python
 [![](https://visitcount.itsvg.in/api?id=sanklikesdrain&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mgdrvn32lykwy5obe2lc76nuey&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31mgdrvn32lykwy5obe2lc76nuey&redirect=true)
