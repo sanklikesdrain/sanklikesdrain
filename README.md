@@ -1,5 +1,5 @@
 # 💫 About Me:
-I screw around and geek out for fun.<br><br>❗ Starting from scratch cuz old acc got nuked.
+🦇50SACINMYSOCIDGAF<br><br>🦐I screw around and geek out for fun.<br><br>❗ Starting from scratch cuz old acc got nuked.
 
 
 ## 🌐 Socials:
