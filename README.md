@@ -1,5 +1,5 @@
 # 💫 About Me:
-🦇50SACINMYSOCIDGAF<br><br>🦐I screw around and geek out for fun.<br><br>❗ Starting from scratch cuz old acc got nuked.
+I find memory leaks funny as fuck.<br><br>scratch cards aint shit + fuck python
 
 
 ## 🌐 Socials:
